@@ -1,0 +1,1 @@
+During my eight (8) years at the United Nations Office for Project Services (UNOPS), I led impactful projects at the intersection of Geographic Information Systems (GIS), Surveying, Engineering, Infrastructure Operations, Project Management, and International Development.
